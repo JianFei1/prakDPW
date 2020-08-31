@@ -1,2 +1,2 @@
 # prakDPW
-up
+monggo di delok :v
